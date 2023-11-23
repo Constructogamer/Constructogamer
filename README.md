@@ -1,4 +1,4 @@
-He/Him
+He/Him\n
 **09/04** ♈
 Computer engineering student 🎓
 Gamer and game developer 🎮🔧
